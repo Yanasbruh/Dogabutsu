@@ -1,3 +1,3 @@
-# Wait masih tahap uji coba
+# Warning Kouta Anda kalo mau buka
 
-Link Sementara : https://yanasbruh.github.io/Trapelskuy.github.io/ 
+Link Sementara : https://yanasbruh.github.io/Dogabutsu/
